@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Surendran22
 - 👀 I’m interested in Learning New Tech Things
 - 🌱 I’m currently learning cool Skills
-- 💞️ I’m looking to collaborate on Gaming orginazition
+- 💞️ I’m looking to collaborate on exciting orginazition
 - 📫 How to reach me - you can Email me asurendhar49@gmail.com
 
 <!---
